@@ -1,6 +1,14 @@
-- 👋 Hi, I’m @Cyannimazing
-- 👀 I’m confident of my java programming skill 
-- 🌱 I’m currently learning at STI Davao College
-- 💞️ I’m seeking for improvement and building friendship
-- 📫 You can reach me here in my gmail
--     @cyrilnarvasa589@gmail.com
+CAREER OBJECTIVE:
+
+Constantly improve and gain valuable experiences in my chosen field. 
+I am dedicated on expanding my knowledge and skills to excel in my career. 
+By embracing opportunities for growth and learning, 
+I aim to become a highly skilled professional in my industry.
+
+Contacts:
+  Email: 
+    @Cyrilnarvasa589@gmail.com
+    @Cyann6969@gmail.com
+  Phone No.
+    +63 9065845902
+  
