@@ -8,7 +8,6 @@ I aim to become a highly skilled professional in my industry.
 Contacts:
   Email: 
     @Cyrilnarvasa589@gmail.com
-    @Cyann6969@gmail.com
   Phone No.
     +63 9065845902
   
